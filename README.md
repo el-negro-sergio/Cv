@@ -1,2 +1,2 @@
 # Cv
-CV to shown to future employers
+CV to show to future employers
